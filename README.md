@@ -3,6 +3,6 @@
 # Marshall Clawd Andie A. Mergillano  
 
 # Joshua Isiah D. Tria
-I aspire to be a great person overall. I would like to be an independent, self-sufficient and successful individual.
+I aspire to be a great person overall. I would like to be an independent, self-sufficient and successful individual. We are queer and we are here!
 
 # Jasmine Kaylee M. Falla
