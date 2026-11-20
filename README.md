@@ -7,3 +7,4 @@
 * I aspire to be a great person overall. I would like to be an independent, self-sufficient and successful individual. We are queer and we are here!  
 
 # Jasmine Kaylee M. Falla
+* Hi, I'm Jasmine — the third member of our group. I enjoy reading, playing online games, eating food, and listening to different genres of music. Furthermore, I have three dogs — Pepper, Salt, and Eliza! My dream is to become a doctor so I can help other people. Finally, I wish to travel the world and witness numerous natural wonders!
